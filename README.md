@@ -1,1 +1,0 @@
-# shapovalovmax.github.io
